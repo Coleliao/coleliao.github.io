@@ -1,1 +1,1 @@
-Wellcome to my personal channel! 🥰
+Welcome to my personal channel! 🥰
